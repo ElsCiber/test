@@ -1,1 +1,1 @@
-![Foto Launcher](https://github.com/user-attachments/assets/6bcefc68-7492-4895-8591-175a4b28731b)
+![Foto Launcher](https://github.com/user-attachments/assets/2a1fbbb0-2124-435a-bfbd-95ad7c3eb1dc)
